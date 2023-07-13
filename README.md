@@ -1,0 +1,5 @@
+- 👋 Hey, im xan4ks.
+- 👀 Im into programming.
+- 🌱 Right now, im learning Java.
+- 💞️ I do not wanna team up with anyone in the near future sry.
+- 📫 [Here is how you can reach me.](https://discord.gg/KKbGTZeZ)

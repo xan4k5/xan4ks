@@ -2,4 +2,3 @@
 -  Im into programming.
 -  Right now im learn java & C++
 -  I do not wanna team up with anyone in the near future sry.
--  Discord - xan4kss

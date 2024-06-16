@@ -1,4 +1,4 @@
 -  Hey, im xan4ks.
 -  Im into programming.
--  Right now im learn java & C++
+-  Right now im learn C++
 -  I do not wanna team up with anyone in the near future sry.

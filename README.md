@@ -1,4 +1,2 @@
--  Hey, im xan4ks.
--  Im into programming.
 -  Right now im learn C++
--  I do not wanna team up with anyone in the near future sry.
+-  I do want to team up with someone in the near future.

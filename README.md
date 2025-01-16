@@ -1,2 +1,2 @@
 -  Right now im learn C++
--  I do want to team up with someone in the near future.
+-  I do NOT want to team up with someone in the near future.
